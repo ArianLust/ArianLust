@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi Hi Hello 👋
 
 **My Name is ArianLust, tho everyone calls me Lust, which is what you should!**
 
@@ -7,3 +7,4 @@
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I like Pizza
 
+// august 12 2036
