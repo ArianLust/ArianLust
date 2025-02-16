@@ -2,4 +2,4 @@
 ## New Super Mario Bros. Versus - Sound Mod: https://arianlust.itch.io/nsmbmvlsm
 ## New Super Mario Bros. Versus - RENEWED: https://arianlust.itch.io/nsmbvs-renewed
 ## Lust's 1.8 Fuckery: https://arianlust.itch.io/lusts-18-fuckery
-## Lust's Stupid Soup Mod: (COMING SOON!)
+## Lust's Character Mod: https://arianlust.itch.io/lusts-character-mod
